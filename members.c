@@ -12,8 +12,4 @@ ashishwa gdha bahiiiiiiiiiiii
 hellooooooooo
 ashishwa gdha bahiiiiiiiiiiii
 hellooooooooo
-ashishwa gdha bahiiiiiiiiiiii
-hellooooooooo
-ashishwa gdha bahiiiiiiiiiiii
-hellooooooooo
 ashishwa gdha ba
